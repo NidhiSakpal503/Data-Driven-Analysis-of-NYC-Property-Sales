@@ -1,0 +1,2 @@
+NYC'S Skyline is Dynamic but with sales there is story of demand, change and value. By analyzing the data of NYC real estate market helps buyers make smarter choices, investors spot opportunities and policy makers  plan for much fairer and affordable city . 
+As they say if you can make it here you can make it anywhere else in the world but when it comes to buying a property in NYC can afford making it here?Lets explore what the data reveals.
